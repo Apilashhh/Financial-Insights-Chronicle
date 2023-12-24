@@ -22,3 +22,4 @@ Simultaneously, I acquired skills in managing a subscriber list and maintaining 
 ### Overall Learning and Expertise Development
 
 In summary, this project of creating an English newsletter on finance and economic news allowed me to develop my expertise in research, writing, communication, community management, and online marketing. I gained profound knowledge in financial and economic subjects while providing valuable service to my subscribers by keeping them informed and offering practical guidance in these domains.
+![study-anime](https://github.com/Apilashhh/Financial-Insights-Chronicle/assets/154760968/8cafabf1-8e6b-4da9-b74f-b400f63826c9)
