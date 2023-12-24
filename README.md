@@ -1,6 +1,7 @@
 # Project: English Newsletter on Finance and Economic News 📰💼
 
 During the course of my project to create an English newsletter focused on finance and economic news, I successfully executed several concrete steps that contributed to its success.
+![anime-anime-study](https://github.com/Apilashhh/Financial-Insights-Chronicle/assets/154760968/42720077-b26a-4c4f-a1ac-a9ac8d11394f)
 
 ### Establishment of a Dedicated Website
 
